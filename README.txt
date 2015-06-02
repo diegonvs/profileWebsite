@@ -11,7 +11,7 @@ you can use for pretty much whatever.
 
 (* = not included)
 
-AJ
+AJ gay
 n33.co @n33co dribbble.com/n33
 
 
